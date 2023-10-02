@@ -1,0 +1,1 @@
+# Tugas-Computer-Vision-Sesi-2_Ika_TI21F-
